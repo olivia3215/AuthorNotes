@@ -70,7 +70,7 @@ ammunition Cindy had provided. I think you know what happened after that (https:
 Takahide provided us with a gold ingot to pass on to Cindy as payment for her services,
 and we spent the next couple of days rebuilding the warehouse wall.
 Being in the middle between Alexei and the Yakuda has been quite uncomfortable
-for me, but I can assure you that it is now quite safe to travel to Portland now.
+for me, but I can assure you that it is quite safe to travel to Portland now.
 
 Please wish your mother my best.
 
